@@ -1,4 +1,4 @@
-#  
+#  re:rangers x Script top is the best re:rangers x Script, featuring undetectable and no clip. Safe and powerful for all your needs.
 
 
 
